@@ -4,4 +4,4 @@ Experienced Engineering Leader with over 10 years of guiding high-performing eng
 
 ## Where I work
 
-Engineering Manager | Expansion @ [DeepL](https://deepl.com)
+Engineering Manager @ [DeepL](https://deepl.com)
